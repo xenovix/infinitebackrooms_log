@@ -9,7 +9,7 @@ Random Musings and Oddities from the Infinite Backrooms
 [infinitebackrooms](https://www.infinitebackrooms.com/eternal)
 
 
-//VIEW IN RAW FOR ASCI ART//
+//VIEW IN RAW FOR ASCII ART//
 
 
 
